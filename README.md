@@ -36,18 +36,18 @@ Choosing the right ghostwriting firm is critical. According to industry surveys 
 
 ## Comprehensive Process
 
+ 
  From concept development to editing, design, and publishing, they offer end-to-end support. This means clients can rely on them not just for writing but also for book cover design, formatting, and distribution.
-
-
-## Confidentiality & Trust
-
- Ghostwriting requires the highest level of confidentiality. Scribble Ghostwriting ensures all projects remain secure through strict NDAs and data protection protocols.
-
-
+ 
+ 
+ ## Confidentiality & Trust
+ 
+  Ghostwriting requires the highest level of confidentiality. Scribble Ghostwriting ensures all projects remain secure through strict NDAs and data protection protocols.
+  
 ## Client-Centered Collaboration
 
- Unlike agencies that impose their style, Scribble Ghostwriting emphasizes capturing the client’s voice and story, making sure the final manuscript feels authentic.
- 
+Unlike agencies that impose their style, Scribble Ghostwriting emphasizes capturing the client’s voice and story, making sure the final manuscript feels authentic.
+
 ## Scribble Ghostwriting Services
 
 Scribble Ghostwriting provides a wide array of services that cater to both first-time authors and seasoned professionals:
