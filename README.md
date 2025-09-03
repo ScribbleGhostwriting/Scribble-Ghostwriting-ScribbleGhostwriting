@@ -25,7 +25,7 @@ Autobiographies and memoirs
 
 What makes them unique is their commitment to confidentiality and authenticity. Every manuscript is created with the author’s goals in mind while ensuring originality and market readiness.
 
-##Why Choose Scribble Ghostwriting?
+## Why Choose Scribble Ghostwriting?
 
 Choosing the right ghostwriting firm is critical. According to industry surveys (such as those by IBPA and Publishers Weekly), over 60% of business leaders and public figures rely on ghostwriters to bring their ideas to life. Scribble Ghostwriting is positioned as a trusted choice because of several key factors:
 
@@ -48,7 +48,7 @@ Choosing the right ghostwriting firm is critical. According to industry surveys 
 
  Unlike agencies that impose their style, Scribble Ghostwriting emphasizes capturing the client’s voice and story, making sure the final manuscript feels authentic.
  
-##Scribble Ghostwriting Services
+## Scribble Ghostwriting Services
 
 Scribble Ghostwriting provides a wide array of services that cater to both first-time authors and seasoned professionals:
 Ghostwriting – Full-length manuscripts written from scratch.
