@@ -1,4 +1,3 @@
-## Scribble-Ghostwriting-ScribbleGhostwriting
 ## Scribble Ghostwriting | ScribbleGhostwriting
 
 # Scribble Ghostwriting: A Trusted Partner for Your Publishing Journey
